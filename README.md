@@ -17,6 +17,6 @@
 ---
 
 ## 📫 Connect with me  
-- LinkedIn:[My LinkedIn Profile](https://www.linkedin.com/in/ridmi-pavithra-a592a7372)
+- LinkedIn:[https://www.linkedin.com/in/ridmi-pavithra-a592a7372](https://www.linkedin.com/in/ridmi-pavithra-a592a7372)
 - Email: [ridmisd4@gmail.com](mailto:ridmisd4@gmail.com)
 
